@@ -11,7 +11,7 @@
 I’m a **ECE student * currently studying VSLI embedded system.  
 Passionate about **creating VLSI projects** and **hardware projects**.  
 Exploring new technologies and improving my **skills** and **machine learning** skills.  
-Reach me at: **srushtijogur456@gmail.com**
+Reach me at: **mugalivinay15@gmail.com**
 
 ---
 ## 🌐 Socials
